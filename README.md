@@ -8,7 +8,9 @@
 
 ★ **Boundaries**
 ★ Yes: Rambling, Talking, Texting
+
 ★ Maybe: Bantering, Venting, Calling
+
 ★ No: Fakeclaiming, Mental illness discourse, Ampora Discourse (/NEG)
 
 🃏 Alters Pronouns¹ ± Spacehey² 
