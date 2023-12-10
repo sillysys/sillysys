@@ -1,21 +1,13 @@
 🎪  __Meet The Amazing__,
  **SILLY SYSTEM** !!
 
-𖦹 Collective Name: 
+𖦹 Collective Name: Skyy
 
-Skyy
+𖦹 Collective Pronouns: They/Them
 
-𖦹 Collective Pronouns: 
+𖦹 Bodily Age: 17
 
-They/Them
-
-𖦹 Bodily Age: 
-
-17
-
-𖦹 Status: 
-
-Taken
+𖦹 Status: Taken
 
 ★ **Boundaries**
 
@@ -25,10 +17,6 @@ Taken
 
 ★ No: Fakeclaiming, Mental illness discourse, Ampora Discourse (/NEG)
 
-🃏 Alters Pronouns¹ ± Spacehey² 
-
-🃏https://pronouns.cc/@Soapyslushy
-
-🃏https://spacehey.com/soapyslushy
+🃏 Spacehey¹ https://spacehey.com/soapyslushy
 
 🎪  __That's All Folks__
