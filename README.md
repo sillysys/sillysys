@@ -17,6 +17,4 @@
 
 ★ No: Fakeclaiming, Mental illness discourse, Ampora Discourse (/NEG)
 
-🃏 Spacehey¹ https://spacehey.com/soapyslushy
-
 🎪  __That's All Folks__
