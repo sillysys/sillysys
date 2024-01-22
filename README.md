@@ -9,6 +9,8 @@
 
 𖦹 Status: Taken
 
+𖦹 Host/Co-host: Soap, Eridan, Cronus, Karkat, Psiioniic, Asa, Angel
+
 ★ **Boundaries**
 
 ★ Yes: Rambling, Talking, Texting
