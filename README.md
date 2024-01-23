@@ -9,7 +9,7 @@
 
 𖦹 Status: Taken
 
-𖦹 Host/Co-host: Soap, Eridan, Cronus, Karkat, Psiioniic, Asa, Angel
+𖦹 Host/Co-host: Soap, Eridan, Cronus, Karkat, Psiioniic, Asa, Angel, Tommy
 
 ★ **Boundaries**
 
