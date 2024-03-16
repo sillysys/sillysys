@@ -5,11 +5,11 @@
 
 𖦹 Collective Pronouns: They/Them
 
-𖦹 Bodily Age: 18
+𖦹 Bodily Age: 17
 
 𖦹 Status: Taken
 
-𖦹 Host/Co-host: Soap, Eridan, Cronus, Karkat, Psiioniic, Asa, Angel, Tommy
+𖦹 Host/Co-host: Soap (Aradia + Latula), Eridan, Cronus, Karkat, Psiioniic, Angel, Tommy
 
 ★ **Boundaries**
 
