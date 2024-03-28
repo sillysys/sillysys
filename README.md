@@ -5,7 +5,7 @@
 
 𖦹 Collective Pronouns: They/Them
 
-𖦹 Bodily Age: 17
+𖦹 Bodily Age: 18
 
 𖦹 Status: Taken
 
