@@ -14,7 +14,7 @@
 
 ⟡ [DISCORD SERVER (PLS JOIN)](https://discord.gg/YnXtWW367Y)
 
-⟡ [STRAWPAGE](https://straw.page/make?id=sillysys)
+⟡ [STRAWPAGE](https://sillysys.straw.page)
 
 ⟡ [GUESTBOOK](https://sillysystem.123guestbook.com)
 
