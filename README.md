@@ -12,9 +12,11 @@
 
 ୨୧ **LINKS**
 
+⟡ [DISCORD SERVER (PLS JOIN)](https://discord.gg/YnXtWW367Y)
+
 ⟡ [STRAWPAGE](https://straw.page/make?id=sillysys)
 
-⟡ [GUESTBOOK (PLS SIGN)](https://sillysystem.123guestbook.com)
+⟡ [GUESTBOOK](https://sillysystem.123guestbook.com)
 
 ⟡ [SYSTEM FRONTER](https://pluralkit.xyz/f/ofqhf)
 
