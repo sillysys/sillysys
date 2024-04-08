@@ -10,7 +10,7 @@
 𖦹 Status: Taken 
 (♦ LOSER ♦ | ♥ MUSHKA ♥ | ♥ CAT ♥ | ♥♠ SLIME ♠♥)
 
-୨୧ **LINKS**
+_________
 
 __IMPORTANT__
 
