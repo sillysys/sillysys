@@ -8,7 +8,7 @@
 𖦹 Bodily Age: 18
 
 𖦹 Status: Taken 
-(♦ LOSER ♦ | ♥ MUSHKA ♥ | ♥ CAT ♥ | ♥♠ SLIME ♠♥)
+(♦ LOSER ♦ | ♥ MUSHKA ♥ | ♥ CAT ♥ | ♥♠♦ SLIME ♦♠♥)
 
 _________
 
