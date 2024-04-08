@@ -7,15 +7,16 @@
 
 𖦹 Bodily Age: 18
 
-𖦹 Status: Taken
+𖦹 Status: Taken 
+(♦ LOSER ♦ | ♥ MUSHKA ♥ | ♥ CAT ♥ | ♥♠ SLIME ♠♥)
 
 ୨୧ **LINKS**
 
-⟡ STRAWPAGE
+⟡ [STRAWPAGE](https://straw.page/make?id=sillysys)
 
-⟡ GUESTBOOK (PLS SIGN)
+⟡ [GUESTBOOK (PLS SIGN)](https://sillysystem.123guestbook.com)
 
-⟡ SYSTEM FRONTER
+⟡ [SYSTEM FRONTER](https://pluralkit.xyz/f/ofqhf)
 
 ★ **Boundaries**
 
