@@ -19,4 +19,9 @@
 
 ★ No: Fakeclaiming, Mental illness discourse, Ampora Discourse (/NEG)
 
+**LINKS**
+1. STRAWPAGE
+2. GUESTBOOK (PLS SIGN)
+3. WHO'S FRONTING
+
 🎪  __That's All Folks__
