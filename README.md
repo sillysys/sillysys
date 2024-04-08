@@ -9,7 +9,13 @@
 
 𖦹 Status: Taken
 
-𖦹 Host/Co-host: Soap (Aradia + Latula), Eridan, Cronus, Karkat, Psiioniic, Angel, Tommy
+୨୧ **LINKS**
+
+⟡ STRAWPAGE
+
+⟡ GUESTBOOK (PLS SIGN)
+
+⟡ SYSTEM FRONTER
 
 ★ **Boundaries**
 
@@ -18,12 +24,5 @@
 ★ Maybe: Bantering, Venting, Calling
 
 ★ No: Fakeclaiming, Mental illness discourse, Ampora Discourse (/NEG)
-
-୨୧ **LINKS**
-⟡ STRAWPAGE
-
-⟡ GUESTBOOK (PLS SIGN)
-
-⟡ WHO'S FRONTING
 
 🎪  __That's All Folks__
