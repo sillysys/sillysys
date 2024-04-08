@@ -12,13 +12,19 @@
 
 ୨୧ **LINKS**
 
+__IMPORTANT__
 ⟡ [DISCORD SERVER (PLS JOIN)](https://discord.gg/YnXtWW367Y)
 
+⟡ [SYSTEM FRONTER](https://pluralkit.xyz/f/ofqhf)
+
+_________
+
+__SOCIALS__
 ⟡ [STRAWPAGE](https://sillysys.straw.page)
 
 ⟡ [GUESTBOOK](https://sillysystem.123guestbook.com)
 
-⟡ [SYSTEM FRONTER](https://pluralkit.xyz/f/ofqhf)
+⟡ [SPACEH EY](https://spacehey.com/soapyslushy)
 
 ★ **Boundaries**
 
