@@ -21,11 +21,14 @@ __IMPORTANT__
 _________
 
 __SOCIALS__
+
 ⟡ [STRAWPAGE](https://sillysys.straw.page)
 
 ⟡ [GUESTBOOK](https://sillysystem.123guestbook.com)
 
-⟡ [SPACEH EY](https://spacehey.com/soapyslushy)
+⟡ [SPACE HEY](https://spacehey.com/soapyslushy)
+
+_________
 
 ★ **Boundaries**
 
