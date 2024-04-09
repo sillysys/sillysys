@@ -1,5 +1,4 @@
-🎪  __Meet The Amazing__,
- **SILLY SYSTEM** !!
+🎪  __Meet The Amazing__, **SILLY SYSTEM** !!
 
 𖦹 Collective Name: Skyy
 
@@ -30,7 +29,7 @@ __SOCIALS__
 
 _________
 
-★ **Boundaries**
+ **Boundaries**
 
 ★ Yes: Rambling, Talking, Texting
 
