@@ -6,8 +6,7 @@
 
 𖦹 Bodily Age: 18
 
-𖦹 Status: Taken 
-(♦ LOSER ♦ | ♥ MUSHKA ♥ | ♥ CAT ♥ | ♥♠♦ SLIME ♦♠♥)
+𖦹 loser ◆ jellyfish ◆ racoon ◆ panda
 
 _________
 
