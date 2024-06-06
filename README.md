@@ -1,4 +1,4 @@
-🌊      ‿‿ __Silly SYS__  ﹕  info      .ᐟ
+🌊      ‿‿ __Silly Aquarium System__  ﹕  info      .ᐟ
 
 .      ୨୧      🐟﹕ __they__ **them**
 
