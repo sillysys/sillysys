@@ -1,13 +1,8 @@
-🎪  __Meet The Amazing__, **SILLY SYSTEM** !!
+🌊      ‿‿ __Silly SYS__  ﹕  info      .ᐟ
 
-𖦹 Collective Name: Skyy
+.      ୨୧      🐟﹕ __they__ **them**
 
-𖦹 Collective Pronouns: They/Them
-
-𖦹 Bodily Age: 18
-
-𖦹 loser ◆ jellyfish ◆ racoon ◆ panda
-
+🪼 ‿‿ bisexual + neutral terms
 _________
 
 __IMPORTANT__
@@ -15,7 +10,6 @@ __IMPORTANT__
 ⟡ [DISCORD SERVER (PLS JOIN)](https://discord.gg/YnXtWW367Y)
 
 ⟡ [SYSTEM FRONTER](https://pluralkit.xyz/f/ofqhf)
-
 
 
 __SOCIALS__
@@ -28,12 +22,11 @@ __SOCIALS__
 
 _________
 
- **Boundaries**
+‿‿ 🪸﹕**boundaries** .ᐟ
 
-★ Yes: Rambling, Talking, Texting
+﹒__Yes__ ; [rambling, talking, Texting]      🐚
 
-★ Maybe: Bantering, Venting, Calling
+୨୧  **No** ; [fakeclaiming, ampora discourse (/neg), trauma comparing, mental-health discourse]
 
-★ No: Fakeclaiming, Mental illness discourse, Ampora Discourse (/NEG)
-
-🎪  __That's All Folks__
+🐬﹕*Maybe* ; [bantering, venting, calling]
+_ _
