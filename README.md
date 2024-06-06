@@ -9,10 +9,9 @@ _________
 
 __IMPORTANT__
 
-⟡ [DISCORD SERVER (PLS JOIN)](https://discord.gg/YnXtWW367Y)
-
 ⟡ [SYSTEM FRONTER](https://pluralkit.xyz/f/ofqhf)
 
+⟡ [DISCORD SERVER (PLS JOIN)](https://discord.gg/YnXtWW367Y)
 
 __SOCIALS__
 
