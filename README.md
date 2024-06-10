@@ -7,10 +7,6 @@
 ╰⟢ bee♥‬ jelly★ racoon๑ panda♬ ‿‿
 _________
 
-__IMPORTANT__
-
-⟡ [SYSTEM FRONTER](https://pluralkit.xyz/f/ofqhf)
-
 __SOCIALS__
 
 ⟡ [STRAWPAGE](https://sillysys.straw.page)
