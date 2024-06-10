@@ -11,13 +11,9 @@ __IMPORTANT__
 
 ⟡ [SYSTEM FRONTER](https://pluralkit.xyz/f/ofqhf)
 
-⟡ [DISCORD SERVER (PLS JOIN)](https://discord.gg/YnXtWW367Y)
-
 __SOCIALS__
 
 ⟡ [STRAWPAGE](https://sillysys.straw.page)
-
-⟡ [GUESTBOOK](https://sillysystem.123guestbook.com)
 
 ⟡ [SPACE HEY](https://spacehey.com/soapyslushy)
 
