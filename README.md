@@ -15,11 +15,11 @@ __IMPORTANT__
 
 __SOCIALS__
 
-⟡ [SPACE HEY](https://spacehey.com/soapyslushy)
-
 ⟡ [STRAWPAGE](https://sillysys.straw.page)
 
 ⟡ [GUESTBOOK](https://sillysystem.123guestbook.com)
+
+⟡ [SPACE HEY](https://spacehey.com/soapyslushy)
 
 _________
 
