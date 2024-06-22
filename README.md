@@ -6,7 +6,7 @@
 
 ╰⟢ bee♥‬ jelly★ racoon๑ panda♬ ‿‿
 
-![image](https://github.com/sillysys/sillysys/assets/153270609/86747817-5f6d-4122-abbf-91bf2ee7da93)
+<img src="https://i.pinimg.com/originals/b3/36/b8/b336b8594cdc207216ba346990e3ded5.gif" width="50%" height="50%"/>
 
 __SOCIALS__
 
