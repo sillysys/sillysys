@@ -17,7 +17,7 @@ __SOCIALS__
 
 ⟡ [SPACE HEY](https://spacehey.com/soapyslushy)
 
-_________
+[_________https://i.pinimg.com/originals/e5/b6/a8/e5b6a804efa541e8f6afa4be0c2ba9fe.gif](https://i.pinimg.com/originals/e5/b6/a8/e5b6a804efa541e8f6afa4be0c2ba9fe.gif)
 
 ‿‿ 🪸﹕**boundaries** .ᐟ
 
