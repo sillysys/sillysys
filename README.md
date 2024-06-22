@@ -5,7 +5,8 @@
 🪼 ‿‿ bisexual + androgynist terms
 
 ╰⟢ bee♥‬ jelly★ racoon๑ panda♬ ‿‿
-_________
+
+![image](https://github.com/sillysys/sillysys/assets/153270609/86747817-5f6d-4122-abbf-91bf2ee7da93)
 
 __SOCIALS__
 
@@ -17,7 +18,7 @@ __SOCIALS__
 
 ⟡ [SPACE HEY](https://spacehey.com/soapyslushy)
 
-[_________](https://i.pinimg.com/originals/e5/b6/a8/e5b6a804efa541e8f6afa4be0c2ba9fe.gif)
+![image](https://github.com/sillysys/sillysys/assets/153270609/69292de0-81c5-4e4a-8acc-af9771493c29)
 
 ‿‿ 🪸﹕**boundaries** .ᐟ
 
