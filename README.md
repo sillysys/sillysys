@@ -6,7 +6,7 @@
 
 ╰⟢ bee♥‬ jelly★ racoon๑ panda♬ ‿‿
 
-<img src="https://i.pinimg.com/originals/b3/36/b8/b336b8594cdc207216ba346990e3ded5.gif" width="1280" height="640"/>
+<img src="https://i.pinimg.com/originals/b3/36/b8/b336b8594cdc207216ba346990e3ded5.gif" width="1280" height="300"/>
 
 __SOCIALS__
 
