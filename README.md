@@ -1,6 +1,6 @@
 🌊      ‿‿ __Silly Aquarium System__  ﹕  info      .ᐟ
 
-.      ୨୧      🐟﹕ __they__ **them**
+.      ୨୧      🐟﹕ __they__ **them** + 18
 
 🪼 ‿‿ bisexual + neutral terms
 
