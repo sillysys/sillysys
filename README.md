@@ -2,7 +2,7 @@
 
 .      ୨୧      🐟﹕ __they__ **them** + 18
 
-🪼 ‿‿ bisexual + androgynistic terms
+🪼 ‿‿ bisexual + androgynist terms
 
 ╰⟢ bee♥‬ jelly★ racoon๑ panda♬ ‿‿
 _________
