@@ -6,7 +6,9 @@
 
 ╰⟢ bee♥‬ jelly★ racoon๑ panda♬ ‿‿
 
-<img src="https://i.pinimg.com/originals/b3/36/b8/b336b8594cdc207216ba346990e3ded5.gif" width="1280" height="160"/>
+<img src="https://i.pinimg.com/originals/b3/36/b8/b336b8594cdc207216ba346990e3ded5.gif" width="1000" height="130"/>
+
+_____________
 
 __SOCIALS__
 
@@ -18,7 +20,9 @@ __SOCIALS__
 
 ⟡ [SPACE HEY](https://spacehey.com/soapyslushy)
 
-![image](https://github.com/sillysys/sillysys/assets/153270609/69292de0-81c5-4e4a-8acc-af9771493c29)
+_____________
+
+<img src="https://i.pinimg.com/originals/e5/b6/a8/e5b6a804efa541e8f6afa4be0c2ba9fe.gif" width="1000" height="130"/>
 
 ‿‿ 🪸﹕**boundaries** .ᐟ
 
