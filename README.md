@@ -6,9 +6,7 @@
 
 🪼 ‿‿ bisexual + androgynist terms
 
-╰⟢ bee♥‬ jelly★ racoon๑ panda♬ ‿‿
-
-![](https://komarev.com/ghpvc/?username=sillysys&color=5ea9ce)
+╰⟢ bee♥‬ jelly★ racoon๑ panda♬ ‿‿ ![](https://komarev.com/ghpvc/?username=sillysys&abbreviated=true&style=plastic&color=5ea9ce)
 
 <img src="https://blog.nicalis.com/blog/img/fishiesncrab.gif" width="50%" height="350%"/>
 
