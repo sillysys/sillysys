@@ -1,3 +1,5 @@
+
+
 🌊      ‿‿ __Silly Aquarium System__  ﹕  info      .ᐟ
 
 .      ୨୧      🐟﹕ __they__ **them** + 18
@@ -5,6 +7,8 @@
 🪼 ‿‿ bisexual + androgynist terms
 
 ╰⟢ bee♥‬ jelly★ racoon๑ panda♬ ‿‿
+
+![](https://komarev.com/ghpvc/?username=sillysys&color=5ea9ce)
 
 <img src="https://blog.nicalis.com/blog/img/fishiesncrab.gif" width="50%" height="350%"/>
 
