@@ -16,8 +16,6 @@ __SOCIALS__
 
 ⟡ [STRAWPAGE](https://sillysys.straw.page)
 
-⟡ [SYS FRONTERS](https://pluralkit.xyz/f/ofqhf)
-
 ⟡ [PT DISCORD SERVER](https://discord.gg/FCHBKTGBgb)
 
 ⟡ [SPACE HEY](https://spacehey.com/soapyslushy)
